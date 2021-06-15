@@ -1,0 +1,1 @@
+# pallavi-nama-cloud-config-repo
